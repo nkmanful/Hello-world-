@@ -1,2 +1,3 @@
 # Hello-world-
 Starting my journey...hopefully I will enjoy the ride. Of course I am determined to...
+Live to learn, learn to live is the ethos of my life. I consume knowledge for its sake. I read everything and gets into uneding conversations with myself and mostly people who to talk about the world in its essence and form 
